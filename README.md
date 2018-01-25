@@ -1,1 +1,0 @@
-# gowshiselva.github.io
